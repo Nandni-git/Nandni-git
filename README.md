@@ -15,8 +15,6 @@
 
 •🤝 Interested in Open Source contributions
 
-•🤝 Interested in Open Source contributions
-
 •💡 Believe in learning by building
 
 
